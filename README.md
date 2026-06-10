@@ -25,5 +25,7 @@ SO CUTE OMGOMG TY TY TY
 AWHHHHWHWHWHWHWHWH TY
 
 
+![demo](https://straw.page/draw)
+
 ꈍ◡ꈍ send me. any drawings on sp and I'll add them here!! (couldn't add all of the drawings srysry!!) 
  
