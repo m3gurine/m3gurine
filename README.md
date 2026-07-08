@@ -2,7 +2,7 @@
 
 '𝓲𝓯 𝓘 𝓮𝓿𝓮𝓻 𝓭𝓲𝓮, 𝓻𝓮𝓶𝓮𝓶𝓫𝓮𝓻 𝓶𝓮 𝓪𝓼 𝓱𝓮𝓻, ♥︎ '
 
-CHECK OUT THESE DRAWINGS જ⁀➴ ♡ ![demo](https://files.strawcdn.com/canvas/jpoNiGreasTuKJEVeJmi.png)
+ જ⁀➴ ♡ ![demo](https://files.strawcdn.com/canvas/jpoNiGreasTuKJEVeJmi.png)
 oh my gah ty friendie 4 luka ILYYYYUHHHH THIS IS MY FAVVV!! <333
 ![demo](https://files.strawcdn.com/canvas/VabWlpGUInvnZXAJUZor.png) 
 THANK U!! <//3
